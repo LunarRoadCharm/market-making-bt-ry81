@@ -1,4 +1,4 @@
-# 
+# professional bot de trading FTX extensions est le meilleur bot de trading FTX extensions avec basse fréquence et take-profit. Sécurisé, fiable et optimisé pour les stratégies de
 
 
 
